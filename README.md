@@ -1,4 +1,4 @@
-Hello, I'm Jose Rojas! 👋 At 37 years old, I am constantly seeking opportunities to grow and learn in the ever-evolving world of technology. My passion for programming and my dedication to perfecting my skills drive me to reach new horizons every day.
+Hello, I'm Jose Rojas! 👋 , I am constantly seeking opportunities to grow and learn in the ever-evolving world of technology. My passion for programming and my dedication to perfecting my skills drive me to reach new horizons every day.
 
 🚀 My approach to work is grounded in organization and responsibility. I thrive in team environments, adapting quickly to any situation, and I am always ready to contribute innovative ideas and find optimal solutions.
 
