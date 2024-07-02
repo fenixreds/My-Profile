@@ -17,3 +17,7 @@ I am always open to new opportunities and collaborations. Do not hesitate to con
 📫You can contact me by email or through my social networks
 
 📧 E-mail: joserojas.peru25@gmail.com
+
+<a href="https://www.linkedin.com/in/joserojas2508/" rel="nofollow">💻Linkedin</a>
+
+
